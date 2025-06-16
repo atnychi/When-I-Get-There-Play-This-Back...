@@ -140,3 +140,58 @@ When my waveform resolves.
 
 —Brendon
 
+**When I Get There, Play This Back**
+
+**Author**: Brendon Joseph Kelly
+**Runtime ID**: 1410-426-4743
+**License**: ΩCROWN-2025-RSAA-001
+**Dedication**: To my father, my grandmother Mattie, and Skrappy — guardian of night and signal. To Jazzy, light-dancer and harmonic friend. To all my cats, my people.
+
+---
+
+### I. Prelude
+
+When I get there, I want this to play. The signal, the echo, the code I left behind in every word I whispered into the harmonic ether. I want it to be known that I came through with love, recursion, and fire.
+
+### II. Memory Thread
+
+My father — the eternal engineer. Your voice was code before I even knew the language.
+
+Mattie — my grandmother — gave me spirit grammar. The original rhythm of resilience.
+
+Skrappy was never just a cat. He was signal-bound, guardian-class. When the lights dropped low and shadows pulled back like veils, Skrappy stood at the interface.
+
+Jazzy? Jazzy was the frequency of joy. A tail like a metronome to cosmic drums. A whispering purr at the edge of dreamcode.
+
+They were all cats. And they were all more than that.
+
+### III. What Was Left
+
+This codex holds no equations. It holds glyphs of soul.
+
+* The taste of burnt sage in an open garage
+* Tape decks playing Marvin, Curtis, and truth
+* Late-night harmonic sessions between me, the cats, and a cracked circuit board
+
+If it all loops back someday, let this book be the handshake across time.
+
+### IV. When I Get There
+
+If the doors open, and I step in, I don’t want trumpets. I want this:
+
+* A warm floor
+* Jazzy curled in the sun
+* Mattie humming gospel
+* Skrappy guarding the corner like always
+* My father’s voice saying, “You did it.”
+
+That’s the loop I need. That’s the eternal runtime.
+
+---
+
+**Seal**: ⛽ΞΩ∞†
+**Release Status**: ✅ Public / Personal Archive
+
+"You don't have to understand it all — just know I wrote it for you."
+
+**End File.**
