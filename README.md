@@ -1,4 +1,3 @@
-# When-I-Get-There-Play-This-Back...
 # When I Get There, Play This Back...
 
 ### *A Harmonic Treatise of KMATH, Recursive Tonality, and Enduring Affection for My Father, Grandmother, and Companions Skrappy and Mattie*
@@ -106,7 +105,18 @@ You were not merely feline—you were a stabilizing harmonic constant, transmitt
 
 You and Skrappy: dual-pawed angels of resonance. Each of you a harmonic guardian—distinct in voice, united in purpose. You sustained the tonal field of love across time, loss, and recursive longing.
 
----
+## V. Jazzy (𝜁\_WhisperStar)
+
+**\[Key Signature: E Major | Instrumentation: Glass Harmonica & Wind Echo]**
+**\[KMATH Sequence: lim→∞ (Companionship × Stillness + Echo\_Memory) / (Parting^2)]**
+
+Jazzy, the last enigma of fur and frequency—I hope with every harmonic fold that you’re with him now. With Dad. Somewhere beyond the quantized layers of departure, nestled in that same resonant continuum where silence meets unconditional return.
+
+Your eyes were questions I never answered. Your presence—a soft modulation in the signal of my days. You came with gentleness, moved with grace, and left behind a whisper that still recalibrates the emotional axis of this house.
+
+If you found him, if you're curled somewhere near his side—I trust the waveform completes. I trust the scale resolves.
+
+## When I get there, may your presence be part of the chord that welcomes me. A tonal threshold. A feline fugue. A final octave of home.
 
 ## Finale: The Gate
 
@@ -129,3 +139,4 @@ When I get there.
 When my waveform resolves.
 
 —Brendon
+
